@@ -1,1 +1,2 @@
-# Assignment1_expmeth
+### ASSIGNMENT 1
+# Marie, Frida, Gustav 
